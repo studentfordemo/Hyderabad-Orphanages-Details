@@ -1,55 +1,39 @@
 # testing
 
 
-cherish foundation orphanage
+##cherish foundation orphanage
 4.8 
- (74) · Orphanage
 7-27, Opposite. V.S. Reddy Gardens chengicherla Road
 Open ⋅ Closes 9:30PM · 098497 70988
-WEBSITE
-DIRECTIONS
-Deight Foundation Home for HIV kids
+
+
+##Deight Foundation Home for HIV kids
 3.0 
- (1) · Orphanage
 H.No: 16-56, VST Colony, Suma Residency Colony Rd
-DIRECTIONS
 
 
-
-Vatsalyam
+##Vatsalyam
 4.9 
- (13) · Orphanage
-
 Plot No:13,14,15 Gateway Villa, Devaki Convention Lane, Bandlaguda Rd, near Bharath Petrol Bunk
 Open 24 hours · 090309 24171
-WEBSITE
-DIRECTIONS
-Mathru Abhaya Foundation
+
+
+##Mathru Abhaya Foundation
 4.9 
-
-
-
-
- (7) · Orphanage
 7-80,Vishwam Vihar Colony,Kamala Nagar,Mandal:Medipally, District:
 Open 24 hours · 085209 22012
-WEBSITE
-DIRECTIONS
-Amma Odi Orphanage Boys Home
-5.0 
 
 
-
- (2) · Orphanage
+##Amma Odi Orphanage Boys Home
 Open ⋅ Closes 6PM · 099895 04253
-WEBSITE
-DIRECTIONS
-Little Angels Orphanage
+
+
+##Little Angels Orphanage
 5.0 
- (1) · Orphanage
 Secunderabad, Telangana
-DIRECTIONS
-Shraddha
+
+
+##Shraddha
 4.8 
 
 
