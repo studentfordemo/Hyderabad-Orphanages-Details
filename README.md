@@ -19,12 +19,17 @@ DIRECTIONS
 Vatsalyam
 4.9 
  (13) · Orphanage
+
 Plot No:13,14,15 Gateway Villa, Devaki Convention Lane, Bandlaguda Rd, near Bharath Petrol Bunk
 Open 24 hours · 090309 24171
 WEBSITE
 DIRECTIONS
 Mathru Abhaya Foundation
 4.9 
+
+
+
+
  (7) · Orphanage
 7-80,Vishwam Vihar Colony,Kamala Nagar,Mandal:Medipally, District:
 Open 24 hours · 085209 22012
@@ -32,6 +37,9 @@ WEBSITE
 DIRECTIONS
 Amma Odi Orphanage Boys Home
 5.0 
+
+
+
  (2) · Orphanage
 Open ⋅ Closes 6PM · 099895 04253
 WEBSITE
@@ -43,12 +51,17 @@ Secunderabad, Telangana
 DIRECTIONS
 Shraddha
 4.8 
+
+
+
  (17) · Orphanage
 Open 24 hours · 098664 94819
 WEBSITE
 DIRECTIONS
 Abhi Sai Datta Trust
 4.9 
+
+
  (16) · Orphanage
 # 2-4-1/1/A, Lane, Hyderabad - Warangal Hwy, beside Bharath Petrol Pump
 Open 24 hours · 091338 88820
@@ -56,16 +69,23 @@ WEBSITE
 DIRECTIONS
 Bharthi Ashram
 5.0 
+
+
  (1) · Orphanage
 DIRECTIONS
 Asha kuteer girls home
 3.3 
+
+
  (3) · Orphanage
 Open 24 hours · 097007 00700
 WEBSITE
 DIRECTIONS
 Life Of Hope Children's Home
 5.0 
+
+
+
  (6) · Orphanage
 Secunderabad, Telangana
 Open now · 098850 36573
