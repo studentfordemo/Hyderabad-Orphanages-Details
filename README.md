@@ -1,16 +1,12 @@
 # ORPHANAGE DETAILS
 
 
-```diff
-
-## text in blue
-
 ## cherish foundation orphanage
-4.8 
+*4.8* 
 
-7-27, Opposite. V.S. Reddy Gardens chengicherla Road
+*7-27, Opposite. V.S. Reddy Gardens chengicherla Road*
 
-Open ⋅ Closes 9:30PM · 098497 70988
+*Open ⋅ Closes 9:30PM · 098497 70988*
 
 
 ## Deight Foundation Home for HIV kids
@@ -20,11 +16,10 @@ H.No: 16-56, VST Colony, Suma Residency Colony Rd
 
 
 ## Vatsalyam
-4.9 
+*4.9 **
+*Plot No:13,14,15 Gateway Villa, Devaki Convention Lane, Bandlaguda Rd, near Bharath Petrol Bunk8*
 
-Plot No:13,14,15 Gateway Villa, Devaki Convention Lane, Bandlaguda Rd, near Bharath Petrol Bunk
-
-Open 24 hours · 090309 24171
+*Open 24 hours · 090309 24171*
 
 
 ## Mathru Abhaya Foundation
